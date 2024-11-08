@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ralivecode
-- 👀 I’m interested in "
+- 👀 I’m interested in "😄"
 - 🌱 I’m currently learning "coding"
 - 💞️ I’m looking to collaborate on "RSRJ TEAM"
 - 📫 How to reach me "😄"
